@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Python,React.js,Ai,Full stack web devlopment**
 
-- 📫 How to reach me **important9721@gmail.com**
+- 📫 How to reach me **Lakshyagupta9721@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
